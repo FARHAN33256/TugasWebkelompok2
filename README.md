@@ -1,4 +1,4 @@
 kelompok 2
-Muhamad Arifarhan Tuloli (23621100)
+Muhamad Arifarhan Tuloli
 Rangga Muhammad 
 Junita Angareni
